@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marianofreddi
-- 👀 I’m interested in not to follow my ass and walk straight 
+- 👀 I’m interested in not to run in circles in the forest 
 - 🌱 I’m currently learning how to charge customers
 - 💞️ I’m looking to collaborate to build better world
 - 📫 marianofreddi at gmail.com
